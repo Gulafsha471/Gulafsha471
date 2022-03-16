@@ -11,5 +11,5 @@
 - 💬 Ask me about any tech related information
 - 📫 How to reach me: mail:20211a0471@bvrit.ac.in
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: -
+
 
